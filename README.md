@@ -11,10 +11,10 @@
 ## Как со мной связаться
 
 - 📫 Можешь написать мне на почту: **thesardorisfire@gmail.com**
-- 💬 Лови меня в Telegram - [Sardorbroo11](https://t.me/Sardorbro11)
-- 📷 Загляни в мой профиль Instagram для крутых фото историй из моей жизни - [1worahimofff](https://www.instagram.com/1worahimofff/)
-- 👔 Добавь меня в свой профиль LinkedIn, чтобы мы могли быть в курсе друг о друге - [Sardor Shorahimov](https://www.linkedin.com/in/sardor-shorahimov-124783242/)
-- 🐦 Следи за моими твитами на Twitter - [Sardorbroo](https://twitter.com/Sardorbroo)
+- 💬 Лови меня в Telegram - **[Sardorbroo11](https://t.me/Sardorbro11)**
+- 📷 Загляни в мой профиль Instagram для крутых фото историй из моей жизни - **[1worahimofff](https://www.instagram.com/1worahimofff/)**
+- 👔 Добавь меня в свой профиль LinkedIn, чтобы мы могли быть в курсе друг о друге - **[Sardor Shorahimov](https://www.linkedin.com/in/sardor-shorahimov-124783242/)**
+- 🐦 Следи за моими твитами на Twitter - **[Sardorbroo](https://twitter.com/Sardorbroo)**
 
 ## Мои навыки
 
